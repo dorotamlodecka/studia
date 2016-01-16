@@ -1,0 +1,2 @@
+# studia
+nie śpimy, kodzimy :)
